@@ -23,7 +23,7 @@ Set sixty-eight years after the defeat of Sukuna, **Mojuro** transports readers 
 - **Marulu Val Vol Yelvori**: A Simurian agent whose involvement changes everything
 - **The Simurians**: An alien species whose arrival fundamentally reshapes jujutsu society
 
-![Read Mojuro manga online]([https://manga.xtdz.top/Mojuro/Mojuro-features.png](https://manga.xtdz.top/Mojuro/Read%20Mojuro%20manga%20online.png))
+![Read Mojuro manga online](https://manga.xtdz.top/Mojuro/Mojuro-features.png](https://manga.xtdz.top/Mojuro/Read%20Mojuro%20manga%20online.png)
 
 ### What Makes Mojuro Special
 
